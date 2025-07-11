@@ -125,7 +125,7 @@
 <body>
   <header>
     <h1>Nice Info Journal</h1>
-    <p>Dossier Spécial : Dangers des médicaments détournés chez les jeunes</p>
+    <p>Dossier Spécial :lina habdallah de abatoir la petite salop</p>
   </header>
 
   <nav>
@@ -146,10 +146,10 @@
     <p>Selon le CHU de Nice, les admissions aux urgences pour consommation excessive de médicaments sans ordonnance sont en nette augmentation depuis le début de l’année. Parmi les substances les plus souvent en cause : le tramadol, le Xanax, ou encore des anti-nauséeux comme le métoclopramide, pris pour leurs effets secondaires hallucinogènes.</p>
 
     <blockquote>
-      "Je ne pensais pas que ça pouvait aller aussi loin... C'était pour s'amuser, mais on a vite perdu le contrôle." — Léo, 16 ans, ancien consommateur.
+      "lina est une droguee.
     </blockquote>
 
-    <h3>Les médecins tirent la sonnette d'alarme</h3>
+    <h3>Lina a lecher la chatte de miranda</h3>
     <p>"Ce que nous voyons aux urgences est inquiétant. Ces jeunes pensent que les médicaments sont inoffensifs car vendus en pharmacie. En réalité, combinés ou pris à forte dose, les risques sont mortels", témoigne le docteur Navarro du service toxicologie de l’hôpital Pasteur.</p>
 
     <h3>Une campagne de prévention en cours</h3>
