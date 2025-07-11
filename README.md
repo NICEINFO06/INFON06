@@ -141,7 +141,7 @@
     <h2>Une jeunesse en danger : les overdoses se multiplient à Nice</h2>
     <p class="date">Mis à jour le 10 juillet 2025 - 23h45</p>
 
-    <p>Ce jeudi 10, un drame a une fois de plus frappé la ville de Nice. Un adolescent de 14 ans a été retrouvé inconscient dans sa chambre, victime d'une overdose médicamenteuse. Malgré l'intervention rapide des secours, il n'a pas pu être réanimé. Ce n'est malheureusement pas un cas isolé. Andrei un jeune partie trop tot</p>
+    <p> oh lina habdalah de abbatoirs te une pute rend le telephone a wasim</p>
 
     <p>Selon le CHU de Nice, les admissions aux urgences pour consommation excessive de médicaments sans ordonnance sont en nette augmentation depuis le début de l’année. Parmi les substances les plus souvent en cause : le tramadol, le Xanax, ou encore des anti-nauséeux comme le métoclopramide, pris pour leurs effets secondaires hallucinogènes.</p>
 
